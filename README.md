@@ -10,4 +10,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about Coding!!
 - 📫 How to reach me: in this world 👾🤖
 - 😄 Pronouns: Gama 
-- ⚡ Fun fact: I'm a very clingy guy
+- ⚡ Fun fact: I'm a guy
